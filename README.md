@@ -1,5 +1,5 @@
-[**https://discord.gg/SKAbKYDNMr**](https://discord.gg/SKAbKYDNMr)
-
+[**https://discord.gg/SKAbKYDNMr**](https://discord.gg/SKAbKYDNMr) - DM ME HERE 
+ 
 # **FREE-MAC O.S BYPASS**
 
 # **MORE FEATURES AVAILABLE**
