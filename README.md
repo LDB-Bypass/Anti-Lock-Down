@@ -1,4 +1,6 @@
 https://discord.gg/SKAbKYDNMr
+#FREE-MAC O.S BYPASS 
+#MORE FEATURES AVAILABLE 
 
 # ![image](https://github.com/user-attachments/assets/4a156c22-d761-4091-aab8-f419994f1fc6)
 
